@@ -56,7 +56,7 @@ Gotham Ride offers three Sprinter cabins. The Business Sprinter seats 14 in leat
 
 Hourly service is $247 per hour with a 3-hour minimum ($741), with tolls and gratuity included. Airport arrivals to Midtown start from $450 at LaGuardia, $477 at JFK, and $494 at Newark. Airport pickups include 60 minutes of free wait time.
 
-**Event coverage** sets Gotham Ride apart. The company runs Sprinters to Madison Square Garden, Barclays Center, MetLife Stadium, UBS Arena, and the US Open, plus Hamptons weekends and private flights at Teterboro and Westchester. The Business Sprinter books online, while the Jet and Limo Sprinters book by call or text.
+**Event coverage** The company runs Sprinters to Madison Square Garden, Barclays Center, MetLife Stadium, UBS Arena, and the US Open, plus Hamptons weekends and private flights at Teterboro and Westchester. The Business Sprinter books online, while the Jet and Limo Sprinters book by call or text.
 
 Gotham Ride particularly benefits groups heading to concerts, games, and weekends out east. It excels for groups who want a choice of cabin styles.
 
