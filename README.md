@@ -106,7 +106,7 @@ TriState Ride particularly benefits travelers who move between sedans and Sprint
 
 Luxury limousine company with Sprinters, exotic cars, and armored vehicles.
 
-![Reliance NYC](image/reliancenyc.webp)
+![Reliance NYC](image/reliancelimosnyc.webp)
 
 Reliance NYC runs a wide luxury lineup from its Queens base, including Passenger, Jet, and Limo Style Sprinters alongside Rolls-Royce, Maybach, and Bentley cars. The company says its large vehicles are all under one year old. It serves airport transfers, corporate travel, weddings, sightseeing tours, and special events.
 
